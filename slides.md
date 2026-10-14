@@ -188,7 +188,7 @@ Per una botta di culo, la conferenza annuale di KDE dopo la mia quarta liceo si 
 
 ---
 
-![Akademy 2019, Milano. Foto: Paul Brown, CC BY 4.0](img/citta/parigi.jpg)
+![Akademy 2019, Milano. Foto: Paul Brown, CC BY 4.0](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fi.pinimg.com%2Foriginals%2Fed%2F85%2F16%2Fed85168be2ac1732f2c469caa88b9af5.jpg&f=1&nofb=1&ipt=e541e2d3472408d59bd8d6713037c20aba5016a3649e73593e8906270af4cdda&ipo=images)
 
 
 ---
